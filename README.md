@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @daniel-landgraf
 - 👀 I’m interested in web dev and making (browser) games
-- 📫 How to reach me: d.landgraf2000@icloud.com
+- 📫 How to reach me: d.landgraf2000@icloud.com or daniel__landgraf on IG
